@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on OPEARTING DEPARTMENT RELATED CONTENT
 - 📫 How to reach me ...
 - 😄 Pronouns: SHE HER 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: is nothing 
 
 <!---
 NushkiRao/NushkiRao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
